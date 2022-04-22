@@ -7,3 +7,5 @@ Therefore, I decided to combine the best of both worlds and write simple program
 To help other enthusiasts like myself, I decided to record videos in my mother tongue AKA “Persian,” and publish them on “aparat.com.” 
 
 Following you can find the playlist:
+
+https://www.aparat.com/playlist/1599634
